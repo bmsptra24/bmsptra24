@@ -1,1 +1,2 @@
-![Alt Text](https://usagif.com/wp-content/uploads/cat-typing-2.gif)
+![Alt Text](https://gifdb.com/images/high/office-cat-typing-computer-l6urlu1jc1bvwo3i.webp)
+
